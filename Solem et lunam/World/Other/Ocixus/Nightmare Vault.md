@@ -1,0 +1,1 @@
+Located below The City of Ocxus, the Nightmare Vault is run by [[Zidram - Apollyon]]. The main function of the Vault is to store the Nightmare that is to be studied. It is guarded by intense magic, as well as Apolloyon himself. Only ones who have clearance are allowed to visit it. 

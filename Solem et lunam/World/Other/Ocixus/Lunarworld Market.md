@@ -1,0 +1,1 @@
+Located in The City of Ocixus, the Lunarworld Market is a place where people across the Lunarworld with access to the city can buy and sell goods. Most of the time setting up a temporary shop. 
